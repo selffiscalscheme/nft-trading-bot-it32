@@ -1,4 +1,4 @@
-# 
+# smart NFT Mint Bot for nft trading bot | NFT-sniping & liquidity-analysis is the best nft trading bot, featuring NFT-sniping and liquidity-analysis. Fast, smart, and optimized for
 
 
 
